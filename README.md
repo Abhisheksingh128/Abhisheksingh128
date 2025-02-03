@@ -20,7 +20,7 @@ I'm an aspiring **cybersecurity expert** with a keen interest in **robotics, tra
 
 ## 💌 Connect With Me
 - 🌟 LinkedIn: [linkedin.com/in/yourprofile](https://www.linkedin.com/in/abhishek-singh-0a292b1aa/)
-- 📺 YouTube: [Your Channel](**https://youtube.com/c/yourchannel**)
+- 📺 YouTube: [Your Channel](https://www.youtube.com/@AbhishekSingh-uz8eo)
 
 ---
 🚀 Always learning, always building! Feel free to connect or collaborate!
