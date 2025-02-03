@@ -19,8 +19,8 @@ I'm an aspiring **cybersecurity expert** with a keen interest in **robotics, tra
 - 🛠️ **Automation Scripts for Productivity**
 
 ## 💌 Connect With Me
-- 🌟 LinkedIn: [linkedin.com/in/yourprofile](https://www.linkedin.com/in/abhishek-singh-0a292b1aa/)
-- 📺 YouTube: [Your Channel](https://www.youtube.com/@AbhishekSingh-uz8eo)
+- 🌟 LinkedIn: [linkedin profile](https://www.linkedin.com/in/abhishek-singh-0a292b1aa/)
+- 📺 YouTube: [My channel](https://www.youtube.com/@AbhishekSingh-uz8eo)
 
 ---
 🚀 Always learning, always building! Feel free to connect or collaborate!
